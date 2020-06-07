@@ -1,1 +1,0 @@
-# Lauthier-Ascaso-projet-c
